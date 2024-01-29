@@ -2,10 +2,6 @@ I'm Ismail Azad Khan, an aspiring web developer with interested in learning and 
 Currently, I am actively engaged in freelancing projects and am open to collaboration opportunities in the field of digital marketing.
 To discuss potential partnerships or projects,
 Feel free to get in touch with me:
-https://go.fiverr.com/visit/?bta=929608&brand=fp
-https://go.fiverr.com/visit/?bta=929608&brand=fiverraffiliates
-https://go.fiverr.com/visit/?bta=929608&brand=logomaker
-https://go.fiverr.com/visit/?bta=929608&brand=fiverrmarketplace
 https://www.behance.net/ismailazadkhan
 https://www.facebook.com/ismailazad.khan/
 https://www.linkedin.com/in/ismail-azad-khan-76191a207/
